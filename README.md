@@ -5,7 +5,7 @@
 - 📫 How to reach me ...
 dsa
 <!---asxczczc
-serjokx/serjokx is a ✨ special ✨ repository because ijts `README.md` (this file) appears on your GitHub profile.
+serjokx/serjokx is a ✨ special ✨ repositxsxsxasxcxory because ijts `README.md` (this file) appears on your GitHub profile.
 You can click the Previfffffffew link to take a look at your changes.
 --->scaxzcfadfb
 xzvcd
