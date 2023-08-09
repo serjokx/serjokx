@@ -2,10 +2,10 @@
 - 👀 I’m interested in ...dasd
 - 🌱 I’m currently leacvxrning ...
 - 💞️ I’m looking to collaborsdate on ...asdcxz
-- 📫 How to reach me ...
-dsa
+- 📫 How tgdfgdfgo reach me ...
+dsadfggfd
 <!---asxczczc
-serjokx/serjokx is a ✨ special ✨ repositxsxsxasxcxory because ijts `README.md` (this file) appears on your GitHub profile.
+serjokx/sedfgdfgrjokx is a ✨ special ✨ repositxsxsxasxcxory because ijts `README.md` (this file) appears on your GitHub profile.
 You can click the Previfffffffew link to take a look at your changes.
 --->scaxzcfadfb
 xzvcd
