@@ -1,7 +1,5 @@
-- 👋 Hi, I’m @serjokx
-- 👀 I’m interested in ...dasd
-- 🌱 I’m currently leacvzxcxzxcvxxrning ...
-- 💞️ I’m looking to collgsdadaborsdate on ...asdcxz
+bcxsted in ...dasd
+- 🌱 I’m currently leasing to collgsdadaborsdate on ...asdcxz
 - 📫 How tgdfgdfgo reach me .das..івчясав
 dsadfggfdvcxvfshteаіваві
 <!---asxczczcgfd
