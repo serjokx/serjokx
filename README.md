@@ -1,7 +1,7 @@
 bcxsted in ...dasd
 - 🌱 I’m currently leasing tovbnm collgsdadaborsdate on ...asdcxz
-- 📫 How tgdfgdfgo reach me .das..fdівчясав
-dsadfggfdvcxvfshteаівавvmcі
+- 📫 How tgdfgdfgoxreach me .das..fdівчясав
+dsadfggfdvcxvfshteаівавvmcіsdf
 <!---asxczczcgfdчс
 serjokx/sedfgdfgrjokx is a ✨ special ✨ cvrepositxsxsxasxcxory because ijts `README.md` (this file) appears on your GitHub profile.
 You can click the Previfffffffew link to take a look at your changes.
