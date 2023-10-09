@@ -1,5 +1,5 @@
 bcxsted in ...dasd
-- 🌱 I’m currently leasing tovbnmівафіва collgsdadaborsdate on ...asdcxzbasdc
+- 🌱 I’m currently leasing tovbnmівафіва collgsdadaborsdate on ..j,asdcxzbasdc
 - 📫 How tgdfgdfgoxreachsd me .das..fdівчasdясав
 dsadfggfdvcxvfshteаіваasdвvmcіsdfcxvxcvxcv
 <!---asxczczcgfdчсfsdvfvczxczxc
