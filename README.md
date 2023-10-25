@@ -1,4 +1,4 @@
-bcxsted in ...dasd
+bcxsted in ...dnnbasd
 - 🌱 I’m currently leasing tovbnmівафіва collgsdadaborsdate on ..j,asdcxzbasdhklc
 - 📫 How tgdfgdfgoxreachsd mecvb .das..fdівчashgjdясав
 dsadfggfdvcxvfshteаіваasdвvmcіsdfcxvxcvxcv
