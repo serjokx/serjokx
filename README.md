@@ -1,5 +1,5 @@
 sdaasbcxsted in ...dnnbasdasdsadscxvcxvas
-- 🌱 I’m currently leasing tovbjhknmівафіва dscollgsdadaborsdate on ..j,asdcxzbuvlkgasdhklc
+- 🌱 I’m currently leasing tovbjhknmівафіва dscollgsdadaborsdate on ..j,asdcxzbuvlkgassdddhklc
 - 📫 How tgdfgdfgoxreachsd mecvb .das..fdhgjvівчashgjdясавhvgjgлпроjkygkh
 dsadfggfdvcxvfshteаіваasddsadsacвvmcіasdsasdfcxvxcvcvbxcv
 <!---asxczczcgfdчсfsdvfvczxczxcячфів
